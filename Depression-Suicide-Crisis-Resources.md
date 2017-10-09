@@ -20,7 +20,7 @@ Hotline by and for transgender folks. US: (877) 565-8860 Canada: (877) 330-6366
 
 **[The Icarus Project](http://bit.ly/1KhJIac)**
 
-Offers peer-run mental health support with local meetings across the US, [a Facebook group](https://www.facebook.com/groups/2394863930/), and online forums.
+Publishes resources, offers peer-run mental health support with local meetings across the US, and has an active [Facebook group](https://www.facebook.com/groups/2394863930/)
 
 **[Befrienders Worldwide](http://www.befrienders.org/)**
 
